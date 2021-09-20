@@ -1,1 +1,0 @@
-https://github.com/PavelTsikhanavets/my-cv.git
