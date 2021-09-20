@@ -23,3 +23,25 @@ _Job description:_
 1. Negotiating with prospects, identifying customers’ needs, making a company presentation, scheduling and handling calls
 1. Connecting prospects with Sales and Business Development Managers
 
+* PixelPlex – Sales and Account Manager, January 2021 — present.
+
+_Job description:_
+1. Accomplishing the full cycle of sales activities: initial discussions, company presentation, preparations of commercial offers, negotiating with clients, signing contracts
+1. Calculating project profitability
+1. Keeping track of funds balances and company expenses
+
+**Key skills**
+--------------
+* Knowledge of the IT industry
+* Understanding of an IT project flow
+* Multitask management and flexibility
+* Effective communication
+* Teamwork
+
+**Courses and certifications**
+------------------------------
+IELTS Certificate for Advanced level
+
+**Languages**
+-------------
+English (Advanced, IELTS Certificate for Advanced level), Spanish (Elementary)
